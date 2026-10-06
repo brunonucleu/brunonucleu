@@ -2,7 +2,7 @@
 
 **`Empreendedor, Desenvolvedor e Amante da Tecnologia`**
 
-Me chamo Bruno Henrique, tenho 24 anos e sou natural de Belém do Pará. Concluí o ensino médio no SOPHOS. Sou formado em Engenharia da Computação. Sou apaixonado por tecnologia e tenho uma empresa focada nisso chamado SOLTEK FIX.
+Me chamo Bruno Henrique, tenho 25 anos e sou natural de Belém do Pará. Sou formado em Engenharia da Computação. Sou apaixonado por tecnologia e tenho uma empresa focada nisso chamado SOLTEK FIX.
 
 ---
 
